@@ -22,4 +22,4 @@
 
 ## te dejo mi linkedIn por si estas interesado, suerte!🍀
 
-[LinkedIn](https://www.linkedin.com/in/cristian-david-r-947154226/)
+## [LinkedIn](https://www.linkedin.com/in/cristian-david-r-947154226/)
